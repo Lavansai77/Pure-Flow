@@ -1,3 +1,7 @@
+https://www.loom.com/share/06964481539b4092b4b952584add5472 
+🔝Above link is the video script demo of my project ..!
+
+
 🌊 Pure-Flow
 AI-Based Water Leak Detection & Quality Monitoring System
 
